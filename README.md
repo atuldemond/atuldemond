@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **Full-Stack-Development**
 
-- 📫 How to reach me **atuldemond@gmail.com**
+- 📫 How to reach me **comming-soon**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
